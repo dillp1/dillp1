@@ -5,9 +5,7 @@
 
 - 🌱 I’m currently learning **software development**
 
-- 👨‍💻 All of my projects are available at [https://github.com/dillp1](https://github.com/dillp1)
-
-- 📫 How to reach me **dmichlen@purdue.edu**
+- 📫 Reach me at **dmichlen@purdue.edu**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/dillon-michlena-274b0b2a9/overlay/1751990983717/single-media-viewer/?profileId=ACoAAEphn7gBEf-PQRkH2dhUapO2hGnGRd8bGtk](https://www.linkedin.com/in/dillon-michlena-274b0b2a9/overlay/1751990983717/single-media-viewer/?profileId=ACoAAEphn7gBEf-PQRkH2dhUapO2hGnGRd8bGtk)
 
