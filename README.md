@@ -7,7 +7,7 @@
 
 - 📫 Reach me at **dmichlen@purdue.edu**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/dillon-michlena-274b0b2a9/overlay/1751990983717/single-media-viewer/?profileId=ACoAAEphn7gBEf-PQRkH2dhUapO2hGnGRd8bGtk](https://www.linkedin.com/in/dillon-michlena-274b0b2a9/overlay/1751990983717/single-media-viewer/?profileId=ACoAAEphn7gBEf-PQRkH2dhUapO2hGnGRd8bGtk)
+- 📄 Know about my experiences [Resume]([https://www.linkedin.com/in/dillon-michlena-274b0b2a9/overlay/1751990983717/single-media-viewer/?profileId=ACoAAEphn7gBEf-PQRkH2dhUapO2hGnGRd8bGtk](https://www.linkedin.com/in/dillon-michlena-274b0b2a9/details/featured/1766777019367/single-media-viewer/?profileId=ACoAAEphn7gBEf-PQRkH2dhUapO2hGnGRd8bGtk))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
